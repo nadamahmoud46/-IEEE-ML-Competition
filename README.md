@@ -56,5 +56,4 @@ If you have any questions or would like to connect, feel free to reach out:
 Nada Mahmoud
 **Email:** nadas.mahmoud4661@gmail.com
 **LinkedIn:** https://www.linkedin.com/in/nada-mahmoud-n1466
-Email: nadas.mahmoud4661@gmail.com
-LinkedIn: https://www.linkedin.com/in/nada-mahmoud-n1466
+
